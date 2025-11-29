@@ -1,10 +1,9 @@
 ![photo](https://files.catbox.moe/wqiftw.png)
-
 ʚɞ   FOR.AS.LONG.AS.I.FUNCTION.
 
 I.WILL.BE.HER.PROBLEM.
 
-NOT.YOU.
+NOT.YOU.   ![photo](https://files.catbox.moe/nmisyo.gif)
 
 
 
@@ -15,6 +14,8 @@ NOT.YOU.
 ![photo](https://files.catbox.moe/hm6tnl.gif)
 
 she / it  ᛝ  
+
+![photo](https://files.catbox.moe/cy8562.gif)
 
 ------------
 

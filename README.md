@@ -1,16 +1,24 @@
-![photo](https://files.catbox.moe/ienlc0.png)
-![photo](https://files.catbox.moe/weoxqw.png)
-![photo](https://files.catbox.moe/7x4g3o.png)
+![photo](https://files.catbox.moe/wqiftw.png)
 
-![photo](https://files.catbox.moe/ps36ln.png)  .𖥔 ݁   𝑰 cast   𝑵ECROMANCY!  
-𝑹ise..
+ʚɞ   FOR.AS.LONG.AS.I.FUNCTION.
 
-          
-  ︵  𝑴ia  ,  𝑨ngel 
- ![photo](https://files.catbox.moe/l95hva.gif) 
- 
-  ![photo](https://files.catbox.moe/zmjbrh.gif)             𝑺he / it   𓏵
-         
-![photo](https://files.catbox.moe/tqom6v.png).     𝟏x's wife  <3  / multi yumeshipper  (˶ᵔ ᵕ ᵔ˶)
+I.WILL.BE.HER.PROBLEM.
 
-![photo](https://files.catbox.moe/xcll8r.png)
+NOT.YOU.
+
+
+
+![photo](https://files.catbox.moe/gkg2wf.png)
+
+⋆˙⟡    𝑨ngel . 𝑴ia  ![photo](https://files.catbox.moe/i5mxun.gif)
+
+![photo](https://files.catbox.moe/hm6tnl.gif)
+
+she / it  ᛝ  
+
+------------
+
+ .𖥔 ݁ ˖ "1x1's wife" !! multiyumeshipper ^_^   ![photo](https://files.catbox.moe/phuxcq.gif)
+  
+
+ ![photo](https://files.catbox.moe/im7y1q.png)
